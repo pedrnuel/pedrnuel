@@ -1,0 +1,3 @@
+- Técnico em Gestão e Programação de Sistemas Informáticos pela EPTN.
+- Projetos em Portfólio. 
+- 👨🏻‍💻
